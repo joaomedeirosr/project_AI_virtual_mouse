@@ -12,11 +12,11 @@
 
 ## If you have any problem call me on LinkedIn or send me a e-mail
 
-## Contatcs in my Github bio
+ -Contatcs in my Github bio
 
 
 
-## Follow me in the github :)
+ -Follow me in the github :)
 
 
 ## Let's get start!!!
